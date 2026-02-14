@@ -1,4 +1,5 @@
 Scottsdale, Arizona
+
 📲 [LinkedIn](https://www.linkedin.com/in/bradybaloun/).
 
 <!---
